@@ -1,2 +1,2 @@
 # Bhanu-Pratap-Singh
-I am an Artificial Intelligence Engineering student in India
+I am an Electronics and Communication Engineering student.
